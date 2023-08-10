@@ -1,1 +1,1 @@
-# ur mother
+# yo mamma
